@@ -1,1 +1,1 @@
-crack by x64dbg
+cracked by x64dbg
